@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @CodingnoobTaha
 - 👀 I’m interested in Blockchain
-- 🌱 I’m currently learning coding in genral
+- 🌱 I’m currently learning how to make money 
+- 
 -
 - 📫 How to reach me : codingnoobtaha@gmail.com
 
